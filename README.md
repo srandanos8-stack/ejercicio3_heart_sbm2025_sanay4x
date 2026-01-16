@@ -1,1 +1,0 @@
-# ejercicio3_heart_sbm2025_sanay4x
